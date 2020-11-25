@@ -1,0 +1,1 @@
+While it's true that eating a mango on its own needs no reason, there are a recipe that can lift the mango experience to an all-new high. This no-bake cheesecake is an absolute breeze to make. In fact, should we call it a Mango Breeze-Cake?
